@@ -41,7 +41,7 @@ For ease of mind and sanity, I've divided the ingredients roughly into the steps
 * 2 large jalapeño, seeds removed, diced
 * 2 cans pinto beans, drained
 
-_I'm sympathetic to the idea that rehydrated dried beans would be better here, but that honestly seems like a lot of extra time and fuss and waiting for, really, no good reason. "But when I rehydrate beans myself," I hear you say, "I do so in a deeply flavorful broth that imparts flavor to the beans." To which I reply: "You're about to dump them into a pot of chili." Also, you can probably use whatever other veggies you want here, though remember, this isn't a salad._
+_I'm sympathetic to the idea that rehydrated dried beans would be better here, but that honestly seems like a lot of extra time and fuss and waiting for, really, no good reason. "But when I rehydrate beans myself," I hear you say, "I do so in a deeply flavorful broth that imparts flavor to the beans." To which I reply: "You're about to dump them into a pot of chili. Relax."_
 
 ### What Pulls It All Together
 
@@ -55,11 +55,9 @@ _I'm sympathetic to the idea that rehydrated dried beans would be better here, b
 * cornbread
 * not cilantro
 
-_I'm serious about this last one. If you serve someone a bowl of chili that [looks like this](http://www.cookingclassy.com/wp-content/uploads/2012/11/chili-22.jpg), just remove yourself from the situation._
+_I'm serious about the last one. Cilantro is a leaf. While there are some dishes that are enhanced by the presence of leaves on top, this is not one of them. If you serve someone a bowl of chili that [looks like this](http://www.cookingclassy.com/wp-content/uploads/2012/11/chili-22.jpg), just remove yourself from the situation._
 
 ## Instructions
-
-### The Long Version
 
 Season the meat generously with salt and pepper. In a large heavy-bottomed pot (like a pasta pot), heat some neutral oil (like canola) on medium-high heat and brown them in batches, 1-2 minutes on a side. (The point is to get some [Maillard reaction](http://en.wikipedia.org/wiki/Maillard_reaction) going; actually cooking the meat through happens later.)
 
