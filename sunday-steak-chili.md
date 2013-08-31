@@ -61,7 +61,7 @@ _I'm serious about the last one. Cilantro is a leaf. While there are some dishes
 
 Season the meat generously with salt and pepper. In a large heavy-bottomed pot (like a pasta pot), heat some neutral oil (like canola) on medium-high heat and brown them in batches, 1-2 minutes on a side. (The point is to get some [Maillard reaction](http://en.wikipedia.org/wiki/Maillard_reaction) going; actually cooking the meat through happens later.)
 
-When all the meat is browned, add it back to the pot. Turn the heat down to medium and add the spice mix. (Notice there's no salt in the spice mix? You'll see why in a minute.) Cook to integrate and toast the spices, for about five minutes or until really fragrant. Stir frequently.  
+When all the meat is browned, turn the heat down to medium and add the meat back to the pot. Add the spice mix. (Notice there's no salt in the spice mix? You'll see why in a minute.) Cook to integrate and toast the spices, for about five minutes or until really fragrant. Stir frequently.  
 
 Add the onions and jalapenos to brown them. Okay, _this_ is why there was no salt in the spice mix. Salt encourages veggies (and just about anything that's made of cells) to give off liquid, which is not what you want here. You want to more brown the veggies than braise them, and you want them to save their liquid for later. (Also, given the inherent salt content of some of the other ingredients, I find it smarter to wait until you're basically done, and then salt the whole thing to taste. No one likes salty chili.)
 
