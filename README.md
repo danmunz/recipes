@@ -1,4 +1,2 @@
-recipes
+Recipes
 =======
-
-Recipes from http://eatmoresoup.tumblr.com/
