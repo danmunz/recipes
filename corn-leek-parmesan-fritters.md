@@ -26,9 +26,9 @@ Makes 12-16 fritters.
 
 ### The Sour Cream
 
-1 cup sour cream
-1 tsp lemon zest
-Pinch of salt & pepper
+* 1 cup sour cream
+* 1 tsp lemon zest
+* Pinch of salt & pepper, to taste
 
 ## Instructions
 
