@@ -1,5 +1,7 @@
 # Perfect Chicken Pot Pie
 
+![The finished product.](https://raw.githubusercontent.com/danmunz/recipes/master/img/perfect-chicken-pot-pie.jpg)
+
 ## Notes
 
 This is a pretty complicated recipe, but I promise you, it's worth it. Lightly adapted from [Smitten Kitchen](http://smittenkitchen.com/blog/2008/11/chicken-pot-pie/), which in turn was adapted from [Ina Garten](http://www.barefootcontessa.com/recipes.aspx?RecipeID=82&S=0) - but this recipe is really my own.
