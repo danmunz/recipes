@@ -43,7 +43,6 @@ _(For later, when baking)_
 * 1/2 tsp soy sauce
 * 1 tsp tomato paste
 * 1 tbsp white wine
-
 * a handful of parsley (about 1/2 cup), roughly chopped
 * 1/2 cup green peas, frozen (or blanched if fresh)
 
