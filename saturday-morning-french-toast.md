@@ -40,7 +40,7 @@ When the timer goes off _or_ when the butter is fully melted and gently bubbling
 
 Now that your bread is on the griddle...don't set a timer.
 
-_Seriously? The actual cooking is the part of this that __doesn't__ use a timer?_
+_Seriously? The actual cooking is the part of this that doesn't use a timer?_
 
 That's right. The rate at which challah soaks up an egg-milk-flavor mixture is precise. It's a physical constant. You can set a watch by it. The rate at which that bread combines with heat and butter to transform into French toast, on the other hand, is art. It's poetry. It's ineffable, dependent on a thousand different variables. So, this is where we abandon the world of timers, and enter the world of judgment.
 
