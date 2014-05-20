@@ -30,7 +30,7 @@ Set a timer for three minutes. [Not two, not four, but three.](https://www.youtu
 
 When the timer goes off, _gently_ flip the challah slices, and set a timer for two minutes.
 
-When the timer goes off, put your butter onto the griddle. It should sizzle, but not smoke.
+When _that_ timer goes off, put your butter onto the griddle. It should sizzle, but not smoke.
 
 Set a timer for one minute (or, hell, just count to sixty). Use this last 60 seconds to swish the challah around in the egg mixture, absorbing as much as possible.
 
