@@ -10,7 +10,7 @@ The real trick here, the real secret, isn't in the ingredients, but rather, the 
 
 ## Ingredients
 * Four large slices of raisin challah, cut about 3/4" thick 
-* 1 large egg, beaten or 1/4 cup egg substitute
+* 3 large eggs, beaten or 3/4 cup egg substitute
 * 1/2 cup whole milk
 * 1 tsp cinnamon
 * 1/2 tsp vanilla extract
