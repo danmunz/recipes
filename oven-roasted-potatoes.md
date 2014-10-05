@@ -37,6 +37,6 @@ Make sure you get all the oil out of the bowl and onto the tray along with the p
 
 Bake the whole thing for 30-45 minutes, tossing them lightly with a spatula every 15 minutes. You'll know they're done when they look brown and crispy on the outside and are creamy but not mushy in the middle, [like this](http://www.bbcgoodfood.com/sites/bbcgoodfood.com/files/recipe_images/recipe-image-legacy-id--20241_11.jpg).
 
-Take them out and let them cool for a few minutes. Eat them. [Like this.](https://encrypted-tbn2.gstatic.com/images?q=tbn:ANd9GcS4gUyJufiuaXbuV6QLn0sPrlOKZLK0h-cOLsEdrdiQ_HfythxF7w)
+Take them out and let them cool for a few minutes. Eat them. [Like this.](http://img2.wikia.nocookie.net/__cb20131123155641/doodledoug-and-ronaldmcmotherfingdonald/images/e/e7/Squidward-eating-krabby-patties.gif)
 
 
