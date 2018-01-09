@@ -1,2 +1,0 @@
-# Sichuan Chili Oil Noodles
-
