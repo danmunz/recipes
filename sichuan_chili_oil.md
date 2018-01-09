@@ -52,6 +52,6 @@ In a large heatproof(!!!) bowl, combine chili flakes, salt, garlic, and Sichuan 
 
 In a small saucepan, combine the oil with all other "hot oil" ingredients. Turn the heat on medium-low, and cook until the ingredients start to turn dark and "frizzle" a little in the oil.
 
-Remove the solid ingredients from the oil with a slotted spoon, and take it off the heat. Let it cool down just briefly - _maybe_ 30 seconds - and pour a tablespoon of the oil over the chili mixture. It should bubble up and make a light frying sound; if it doesn't, heat the oil back up on the stove for a few seconds. Working quickly, add the hot oil, 1-2 tablespoons at a time, stirring between additions, until the chilis are fully covered. Give it a final stir and gradually pour in the rest of the oil.
+Remove the solid ingredients from the oil with a slotted spoon, and take it off the heat. Let it cool down just briefly - _maybe_ 30 seconds; the oil should be between 225F and 250F - and pour a tablespoon of the oil over the chili mixture. It should bubble up and make a light frying sound; if it doesn't, heat the oil back up on the stove for a few seconds. Working quickly, add the hot oil, 1-2 tablespoons at a time, stirring between additions, until the chilis are fully covered. Give it a final stir and gradually pour in the rest of the oil.
 
 Let the mixture cool a bit, and add whichever additions please you. Cool completely and stir in a lidded vessel - ideally a mason jar - for as long as you want. Shake or stir well before using, and add to anything you eat a spoonful at a time.
