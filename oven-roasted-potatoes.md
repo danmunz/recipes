@@ -28,7 +28,7 @@ A few keys to success here:
 
 Heat an oven to 400 degrees.
 
-Combine the garlic, oregano, thyme, rosemary, and paprika. Mix well and let the mixture sit for at least half an hour. This helps ensure that the herbs and spices infuse the oil.
+Combine the garlic, oregano, thyme, rosemary, paprika, and oil. Mix well and let the mixture sit for at least half an hour. This helps ensure that the herbs and spices infuse the oil.
 
 Finish soaking the potatoes and dry them well. Toss the potatoes with the mixture, ensuring they mix well, and let them sit together for at least ten minutes. I do this in a bowl, but  you could probably use a ziploc bag.
 
