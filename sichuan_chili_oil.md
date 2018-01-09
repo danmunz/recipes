@@ -7,7 +7,7 @@ After trying to get my hands on her sauce, to no avail, it occurred to me I didn
 
 We're going for something halfway between an oil and a _condiment_, in the classical sense: Imagine a fruit-less chutney, or a meat-less bolognese. We want a seasoned oil that's also somehow chunky and chewy. We want spice, but we want it well-balanced with other flavors. We want something that you could put on absolutely everything. After browsing about a hundred different recipes/YouTube videos, this recipe is what I've landed on. 
 
-This is one of those recipes that seems mysterious, despite (or maybe because of) having highly fungible moving parts. All you _strictly_ need to come out having made Sichuan chili oil is chilis and oil, with some Sichuan peppercorn probably on just this side of the "required" line. The other inclusions aren't _optional_, per se, but they're definitely in that second "some grandmas always used it, some grandmas never used it" tier of ingredients. This recipe is on the maximalist end of those inclusions, because I like fussiness and complexity of flavor but also because it's easier to customize it by taking out stuff you don't like. (Ingredients that are _truly_ optional here are denoted as such below.)
+This is one of those recipes that seems mysterious, despite (or maybe because of) having highly fungible moving parts. All you _strictly_ need to come out having made Sichuan chili oil is chilis and oil, with some Sichuan peppercorn probably on just this side of the "required" line. The other inclusions aren't _optional_, per se, but they're definitely in that second "some grandmas always used it, some grandmas never used it" tier of ingredients. This recipe is on the maximalist end of those inclusions, because I like fussiness and complexity of flavor but also because it's easier to customize it by taking out stuff you don't like. (Ingredients that are _truly_ optional here are denoted as such below.) This food is also highly adjustable; the recipe here is aimed at giving a good general balance, but you can adjust amounts pretty much to your liking. More garlic? Less chili? More salt? Less ginger? Fine, fine, fine, fine. These are levers, not instructions.
 
 Anyhow, the key here turns out not to be the ingredients, but the technique - or, more appropriately, the solution. If you think about it, this recipe is trying to solve a problem: We want to come out with a relatively heavy condiment - an oil - that can stand up to Sichuan staples like doughy noodles, fatty meats, fried fish, and the like. So it needs to be _loud_. The volume needs to be turned up. But for the same reason, we want some pretty intricate flavors. It has to have enough complexity to anchor a dish in ways that ordinary condiments can't. Noodles mixed with straight Sriracha would be inedible; rice mixed with ketchup is what twelve-year-olds make for dinner when mom is stuck at work; but rice or noodles mixed in good Sichuan chili oil are quite legitimately a delicacy.
 
@@ -21,13 +21,13 @@ Recipes say the stuff keeps basically forever in the fridge. If you want go the 
 ### The chili base
 - 3/4 cups red chili flakes
 _these can be [purchased as flakes](https://themalamarket.com/collections/all/products/sichuan-chili-flakes-xiang-la-jiao-mian?aff=2) or made from [whole dried chilis](https://www.amazon.com/Three-Squirrels-Szechuan-Whole-Chilies/dp/B01NASAQ63/) and crushed in a ziploc bag or blender_
-- 4-5 cloves garlic, minced finely
+- 3-4 cloves garlic, minced finely (but not grated)
 - 1 tsp salt
 - 3 tbsp Sichuan peppercorns, lightly crushed
 - 1 tbsp crushed peanuts (optional)
 
 ### The hot oil
-_These are arranged in order of importance to the recipe, as I perceive them. Everything below the star anise is genuinely optional._
+_These are arranged in order of importance to the recipe, as I perceive them. Everything below the bay leaves is genuinely optional._
 
 - 1.5 cups vegetable oil
 - 4 star anise pods
@@ -52,4 +52,4 @@ In a small saucepan, combine the oil with all other "hot oil" ingredients. Turn 
 
 Remove the solid ingredients from the oil with a slotted spoon, and take it off the heat. Let it cool down just briefly - _maybe_ 30 seconds - and pour a tablespoon of the oil over the chili mixture. It should bubble up and make a light frying sound; if it doesn't, heat the oil back up on the stove for a few seconds. Working quickly, add the hot oil, 1-2 tablespoons at a time, stirring between additions, until the chilis are fully covered. Give it a final stir and gradually pour in the rest of the oil.
 
-Let the mixture cool a bit, and add whichever additions please you. Cool completely and stir in a lidded vessel - ideally a mason jar - for as long as you want. Shake or stir well before using, and add to dishes a spoonful at a time.
+Let the mixture cool a bit, and add whichever additions please you. Cool completely and stir in a lidded vessel - ideally a mason jar - for as long as you want. Shake or stir well before using, and add to anything you eat a spoonful at a time.
