@@ -48,7 +48,7 @@ _These are arranged in order of importance to the recipe, as I perceive them. Ev
 - 1 tbsp roasted sesame seeds
 
 ## Instructions
-In a large heatproof(!) bowl, combine chili flakes, salt, garlic, and Sichuan peppercorns. Mix lightly to combine and set aside.
+In a large heatproof(!!!) bowl, combine chili flakes, salt, garlic, and Sichuan peppercorns. Mix lightly to combine and set aside.
 
 In a small saucepan, combine the oil with all other "hot oil" ingredients. Turn the heat on medium-low, and cook until the ingredients start to turn dark and "frizzle" a little in the oil.
 
