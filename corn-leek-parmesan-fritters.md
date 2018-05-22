@@ -11,7 +11,7 @@ Makes 12-16 fritters.
 ### The Fritters
 
 * 2 large leeks, halved and sliced 1/4" thick
-* 4 ears of corn, kernels cut off and (milk extracted)[https://soveryblessed.com/2012/08/how-to-milk-a-corn-cob-2/]
+* 4 ears of corn, kernels cut off and [milk extracted](https://soveryblessed.com/2012/08/how-to-milk-a-corn-cob-2/)
 * 1/4 cup fresh parsley, chopped
 * 2 tbsp fresh thyme, chopped
 * 1/2 tsp smoked Spanish paprika
