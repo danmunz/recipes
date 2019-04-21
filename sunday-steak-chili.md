@@ -10,42 +10,51 @@ Despite the ingredients, it's not fussy, and should be pretty adaptable. I can e
 
 For ease of mind and sanity, I've divided the ingredients roughly into the steps in which you'll use them. Cooking this chili isn't an activity; it's a story.
 
-### The Meat
+### Meat
 
-* 3 lbs beef shoulder, cubed into 1" cubes
+* 3-4lb chuck roast, trimmed of excess fat and cut into 4-5oz pieces
 
-### The Sauce Base
+### Sauce Base
 
-* 3 large dried ancho chiles, pan-toasted and soaked
+* 3 whole ancho, pasilla, or mulato chilies, seeded and torn into rough 1-inch pieces
+* 2 whole New Mexico red, California, costeño, or choricero chilies, seeded and torn into rough 1-inch pieces
+* 1 whole cascabel, árbol, or pequin chili, seeded and torn in half
 * 6 cloves garlic, peeled
-* 1/2 cup crushed tomatoes, ideally fire-roasted
-* 1 tbsp cumin
-
-### The Spice Mix
-
-* 2 tbsp chili powder
-* 1/2 tbsp coriander
+* 1 1/2 teaspoons whole coriander seeds OR powdered coriander
+* 1 1/2 tablespoons whole cumin seeds OR powdered cumin
+* 1 star anise
+* 2 whole cloves
+* 1 tablespoon dried oregano
+* 1/2 tsp ground cinnamon
 * 1 tbsp sweet paprika
-* 1 tbsp dried oregano
-* 1/4 tsp ground cinnamon
-* 1/2 tsp espresso powder
+* 1 oz unsweetened chocolate
+* 1 1/2 cups chicken stock
+* 2 tbsp tomato paste
+* 2 tsp soy sauce
+* 1 tsp espresso powder
 
-### The Liquids
+### Liquids
 
-* 2 28oz cans crushed tomatoes (minus the half-cup you use for the sauce base)
-* 1 bottle Modelo Negro or similar dark beer
+* 1 28oz can whole peeled tomatoes, crushed
+* 1 bottle Modelo Negro or similar lager-style dark beer
+* 1/4 cup dark brown sugar
+* 1 quart minus 1 1/2 cups chicken stock
 
-### The Veggies
+### Veggies
 
 * 2 large diced white onions
-* 2 large jalapeño, seeds removed, diced
+* 2 large green poblano or bell peppers
 * 2 cans pinto beans, drained
 
-_I'm sympathetic to the idea that rehydrated dried beans would be better here, but that honestly seems like a lot of extra time and fuss and waiting for, really, no good reason. "But when I rehydrate beans myself," I hear you say, "I do so in a deeply flavorful broth that imparts flavor to the beans." To which I reply: "You're about to dump them into a pot of chili. Relax."_
+### Pull It Together
 
-### What Pulls It All Together
+* 1/4 cup masa harina or cornmeal (or more as needed, depending on how thick you like your chili)
+* 2 tbsp soy sauce
+* 2 tbsp brown sugar
+* 2 tbsp cider vinegar
 
-* 1/2 cup masa harina or cornmeal (or more as needed, depending on how thick you like your chili)
+### Make It Spicier
+* 1-2 whole cascabel, árbol, or pequin chilies
 
 ### Top It Off
 
@@ -55,7 +64,8 @@ _I'm sympathetic to the idea that rehydrated dried beans would be better here, b
 * cornbread
 * not cilantro
 
-_I'm serious about the last one. Cilantro is a leaf. While there are some dishes that are enhanced by the presence of leaves on top, this is not one of them. If you serve someone a bowl of chili that [looks like this](http://www.cookingclassy.com/wp-content/uploads/2012/11/chili-22.jpg), just remove yourself from the situation._
+
+# IGNORE EVERYTHING BELOW
 
 ## Instructions
 
