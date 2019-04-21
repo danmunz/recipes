@@ -8,18 +8,17 @@
 - This makes about 16 medium-sized matzoh balls.
 
 ## Ingredients
-
-6 large eggs, beaten
-1/2 cup melted schmaltz (chicken fat) or vegetable oil, or a mix of both
-1/4 cup chicken broth
-2 tbsp seltzer
-3 tbsp chopped dill
-3 tbsp chopped chives
-1/2 tsp garlic powder
-1/2 tsp baking powder
-1 1/2 tsp kosher salt
-3/4 tsp freshly ground black pepper
-1 3/4 cups matzo meal
+- 6 large eggs, beaten
+- 1/2 cup melted schmaltz (chicken fat) or vegetable oil, or a mix of both
+- 1/4 cup chicken broth
+- 2 tbsp seltzer
+- 3 tbsp chopped dill
+- 3 tbsp chopped chives
+- 1/2 tsp garlic powder
+- 1/2 tsp baking powder
+- 1 1/2 tsp kosher salt
+- 3/4 tsp freshly ground black pepper
+- 1 3/4 cups matzo meal
 
 ## Instructions
 1. In a large bowl, combine all ingredients except the matzoh meal. Whisk thoroughly to combine.
