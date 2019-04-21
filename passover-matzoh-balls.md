@@ -1,7 +1,7 @@
 # Passover Matzoh Balls
 
-![image](/img/matzoh_balls_fridge.JPG =250x)
-![image](/img/matzoh_ball_soup.JPG =250x)
+![image](/img/matzoh_balls_fridge.JPG)
+![image](/img/matzoh_ball_soup.JPG)
 
 ## Notes
 - Adapted from https://www.bonappetit.com/recipe/bas-best-matzo-ball-soup, with some significant improvements.
