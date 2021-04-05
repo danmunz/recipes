@@ -1,4 +1,4 @@
-# Perfect Chicken Parm
+# Date Night Chicken Parm
 
 ![image](/img/parm_closeup.png)
 ![image](/img/parm_full.png)
