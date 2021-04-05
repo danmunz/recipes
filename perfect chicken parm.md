@@ -1,5 +1,8 @@
 # Perfect Chicken Parm
 
+![image](/img/parm_closeup.png)
+![image](/img/parm_full.png)
+
 ## Notes
 Chicken parm recipe borrowed heavily from: https://www.bonappetit.com/recipe/bas-best-chicken-parm.
 
