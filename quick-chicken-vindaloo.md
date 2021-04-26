@@ -37,7 +37,7 @@ This makes one serving.
 ## Instructions
 1. Place the ghee and aromatics in a cold nonstick pan on the stove. Put the pan on medium heat.
 2. Once the ghee has melted and the aromatics are gently sizzling, cook for 2-3 minutes until fragrant.
-3. Add, chicken, potatoes, onion, and any other vegetables you're using. Salt to taste. Cook for 10 minutes until chicken browns and potato starts to soften.
+3. Add, chicken, potatoes, onion, and any other vegetables you're using. Salt lightly. Cook for 10 minutes until chicken browns and potato starts to soften.
 4. Add tomato paste, sugar and additional spices. Cook for 2-3 minutes, stirring to let the paste get incorporated and spices get toasted.
 5. Add the vinegar and chicken stock. Simmer on medium-high heat until liquid is mostly dissolved and the vindaloo has taken on a thicker, stew-like consistency. Stir occasionally.
 6. Season to taste. Serve over warm jasmine rice.
